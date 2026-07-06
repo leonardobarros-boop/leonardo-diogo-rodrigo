@@ -1,0 +1,1 @@
+Jogador Favorito: Haaland
